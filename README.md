@@ -1,1 +1,1 @@
-Sergi Gonzalez 
+la pagina anira sobre chimpance septiembre 
